@@ -1,3 +1,8 @@
+![images (48)](https://github.com/user-attachments/assets/1cf9db0a-7f99-434e-9802-c481659895c3)
+
+
+
+
 # คำศัพท์ในธุรกิจ Startup และตำแหน่งงาน
 
 ## คำศัพท์ทั่วไป
